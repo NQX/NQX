@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on ... depends on project
 - 🤔 I’m looking for help with ... vintage technology
 - 💬 Ask me about ... Anything
-- 📫 How to reach me: ... [Mail me](nqxdev@gmail.com
+- 📫 How to reach me: ... [Mail me](nqxdev@gmail.com)
 - 😄 Pronouns: ... I don't need Pronouns
 - ⚡ Fun fact: ... I love cats
